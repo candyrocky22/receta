@@ -30,7 +30,8 @@ _Day 1_
 
 1. Soak the gelatin sheets in cold water for at least 10 minutes.
 
-2. 
+2. Place the vanilla pod, and the seeds in a big pan and add milk, cream,
+   honey or glucose syrup.
 
 3. Beat the yolks and sugar fluffy. Bring the cream mixture to a boil. 
    Add the warm cream blend into the frothy yolk mix, and whisk thoroughly.
