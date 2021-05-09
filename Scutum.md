@@ -28,7 +28,7 @@ lighter variations are referred to as cream ice cream.
 
 _Day 1_
 
-1. Soak the gelatin sheets in cold water for at least 10 minutes.
+1.
 
 2. Place the vanilla pod and the seeds in a big pan and add milk, cream,
    honey or glucose syrup.
